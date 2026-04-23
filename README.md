@@ -11,3 +11,4 @@ DNI
 - Art thieves or AI art tracers
 - Religious or political extremists who force beliefs on others
 - Ship wars instigators or fandom purists who harass others
+- harassing someone because their pony skins aren't good or harassing someone new.
